@@ -40,4 +40,4 @@ This policy may be updated if the app's functionality changes. Updates will be p
 
 ## Contact
 
-If you have questions about this privacy policy, contact: **omaralberto6@gmail.com**
+If you have questions about this privacy policy, contact: **xsingularity.corp@gmail.com**
